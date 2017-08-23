@@ -1,0 +1,2 @@
+# Adamska
+Jestem nauczycielka informtyki
